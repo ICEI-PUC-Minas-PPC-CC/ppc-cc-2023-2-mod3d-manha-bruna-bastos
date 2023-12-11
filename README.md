@@ -10,7 +10,7 @@
 
 ## Professor
 
-- Will
+- Will Ricardo do Santos Machado
 
 # Documentação
 
